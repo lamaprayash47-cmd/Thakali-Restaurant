@@ -1,1 +1,0 @@
-# Thakali-Restaurant
